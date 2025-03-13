@@ -1,1 +1,1 @@
-![photo](https://github.com/urlagushka/urlagushka/blob/main/jinx.png)
+![photo](https://github.com/urlagushka/urlagushka/blob/main/sitri1.png)
